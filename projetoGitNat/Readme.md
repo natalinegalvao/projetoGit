@@ -1,0 +1,1 @@
+olá Lucas, obrigada pela paciencia.
